@@ -31,7 +31,7 @@
 
        								.....
 
-➤ primarily barry online, but i go by a lot!             
+➤ primarily called nate, barry, or bolt !            
 
 
 ➤ he / him. unlabeled
