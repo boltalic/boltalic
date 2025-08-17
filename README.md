@@ -61,9 +61,9 @@
 
 ➤ i dislike things that mess with my sensory issues , rude people , lgbtq phobics
 
-➤ some of my triggers are loud noises , people /gen thinking they like my favorite characters more than i do , overly sexual things (please don't hump my pony???)
+➤ some of my triggers are loud noises , people /gen thinking they like my favorite characters more than i do , overly sexual things
 
-➤ do not interact with me if you are lgbtq phobic , ship eobarry , ship batcest/flashcest/etc , or think you like 'DC' and only care abt bats. (bigger DNI on patreon) .ᐟ.ᐟ.ᐟ
+➤ basic [dni](https://dni-criteria.carrd.co/) ^^ (bigger DNI on patreon) .ᐟ.ᐟ.ᐟ
  
                  ...
                                        ..... 
