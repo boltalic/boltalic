@@ -40,6 +40,8 @@
 
 ➤ a litte white boy
 
+➤ barry allen , captain atom , and guy (free guy 2021) are my main fictkins ^_^
+
 		 (read pronouns page for extra) 
   
       ..        
