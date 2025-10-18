@@ -1,4 +1,5 @@
-<img width="1177" height="783" alt="image" src="https://github.com/user-attachments/assets/c79b5374-4f89-4632-8456-40d65a7356a0" />
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/8e2560d9-3e25-4325-b0f8-339dd391f9e3" />
+
 
 
 
@@ -24,7 +25,8 @@
 			....
    
 
-<img width="736" height="246" alt="image" src="https://github.com/user-attachments/assets/bb34fd3d-ead9-4b06-b5f2-095040e36d55" />
+<img width="1080" height="360" alt="image" src="https://github.com/user-attachments/assets/90689376-fdf3-4a00-ae7d-fa3bf44eb686" />
+
 
 
 
@@ -41,7 +43,7 @@
 
 ➤ a litte white boy
 
-➤ barry allen , captain atom , and guy (free guy 2021) are my main fictkins ^_^
+➤ barry allen , captain atom , johnny quick , and johnny storm are my main fictkins ^_^
 
 		 (read pronouns page for extra) 
   
@@ -49,7 +51,8 @@
                
 			  
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/9d2d4581-53c6-479f-87a1-806c76690e07" />
+<img width="1177" height="783" alt="image" src="https://github.com/user-attachments/assets/564d4814-4bea-4026-af47-eaca5edb9ff3" />
+
 
 
      
