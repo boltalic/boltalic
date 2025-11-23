@@ -12,8 +12,8 @@
 
 
 
-; boltalic here hi
-; number #1 logan sargeant fan, okay?
+; nate or logan idk
+; the freaks call me barry
 ; c+h, int, & etc
 ; do not copy :p
 
