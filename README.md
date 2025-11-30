@@ -13,7 +13,7 @@
 
 
 ; nate or logan idk
-; the freaks call me barry
+; ls2 , mv33 , cs55 , yt22 , gr63
 ; c+h, int, & etc
 ; do not copy :p
 
