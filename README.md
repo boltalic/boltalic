@@ -13,7 +13,7 @@
 
 
 ; nate or logan idk
-; ls2 , mv33 , cs55 , yt22 , gr63
+; ls2 , dk26 , mv33 , cs55 , yt22 , gr63
 ; c+h, int, & etc
 ; do not copy :p
 
