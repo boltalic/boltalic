@@ -13,7 +13,7 @@
 
 
 ; nate or logan idk
-; ls2 , dk26 , yt22 , mv3 , etc idk
+; ls2 , dk26 , yt22 , mv3 , ka12 , etc idk
 ; c+h, int, & etc
 ; do not copy :p
 
