@@ -7,21 +7,11 @@
 
 
 
-
-
-
-
-
 ; nate or logan idk
-; ls2 , dk26 , yt22 , mv3 , ka12 , etc idk
+; ls2 , dk26 , mv3 , ka12 , etc
 ; c+h, int, & etc
 ; do not copy :p
-
-
-
-
-
-
+; proshippers int  ,  dni darkshippers
 
 
 | interact stuff |
@@ -33,19 +23,9 @@
 + 🎭 : very in character
 
 
-
-
-
-
-
-uhmmmm do not int if u suck ok
-
-
-
 ~ kvyat yume
 ~ sargeant heavykin
 
 
 ִ ࣪𖤐.ᐟ
 ```
-![498d97740cdb8916987a35e41db7090d](https://github.com/user-attachments/assets/a3ef11e9-f02d-4235-938a-c98f320564c3)
