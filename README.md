@@ -11,7 +11,7 @@
 ; ls2 , dk26 , mv3 , ka12 , etc
 ; c+h, int, & etc
 ; do not copy :p
-; proshippers int  ,  dni darkshippers
+;   ,  dni darkshippers
 
 
 | interact stuff |
