@@ -3,7 +3,7 @@
 
 
 
-<p align="center">![](https://komarev.com/ghpvc/?username=boltalic&color=84858a&label=bolts&style=plastic&abbreviated=true)
+<p align="center">![](https://komarev.com/ghpvc/?username=boltalic&color=f54a0a&label=drivers&style=plastic&abbreviated=true)
 
 
 
