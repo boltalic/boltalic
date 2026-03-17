@@ -3,7 +3,7 @@
 
 
 
-<p align="center"> <img src=https://komarev.com/ghpvc/?username=boltalic&color=e69b00&label=bolts&style=plastic&abbreviated=true"/> </p>
+<p align="center"> <img src=https://komarev.com/ghpvc/?username=boltalic&color=8599ab&label=bolts&style=plastic&abbreviated=true"/> </p>
 
 
 
