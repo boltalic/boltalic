@@ -8,7 +8,6 @@
 
 
 
-ִ<p align="center"> ࣪𖤐.ᐟ
 
 
 
