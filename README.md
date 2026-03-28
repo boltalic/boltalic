@@ -12,5 +12,5 @@
 
 
 
-⠀⠀<p align="center"><img src="https://i.pinimg.com/736x/08/60/98/0860983e65416a233711b86984abc508.jpg" />
+⠀⠀<p align="center"><img src="https://i.pinimg.com/1200x/81/6f/2c/816f2c9cae5dfbd453cc8305926e409b.jpg" />
 
