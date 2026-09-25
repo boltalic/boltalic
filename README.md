@@ -1,6 +1,6 @@
-<sub> @logansargeant you got a min?
+<sub> @𝗹𝗼𝗴𝗮𝗻𝘀𝗮𝗿𝗴𝗲𝗮𝗻𝘁  you got a min?
 <br>
-<small>@maxverstappen1 always.
+<small> @𝗺𝗮𝘅𝘃𝗲𝗿𝘀𝘁𝗮𝗽𝗽𝗲𝗻 always.
 
 
 
